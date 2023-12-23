@@ -3,7 +3,7 @@
 
 <main>
   <center>
-    hop on vencord bitch
+    hop on vencord cutie
   </center>
 </main>
 
